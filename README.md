@@ -1,1 +1,0 @@
-# arajomath.github.io
